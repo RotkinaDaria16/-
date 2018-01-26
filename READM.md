@@ -45,4 +45,8 @@
 # <del> Очень хочу побывать в Испании 
  
    ![!!!](https://78.media.tumblr.com/18e145263289c9235a2896057496aa4a/tumblr_onl90osWHE1qkh326o1_500.jpg)
+   
+   *Цель в жизни быть счастливой*
+   
+   ![!!!](http://mirpozitiva.ru/uploads/posts/2017-03/1489049518_16.jpg) 
  
