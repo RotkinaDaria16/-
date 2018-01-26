@@ -49,4 +49,8 @@
    *Цель в жизни быть счастливой*
    
    ![!!!](http://mirpozitiva.ru/uploads/posts/2017-03/1489049518_16.jpg) 
+   
+   # <del> Не слушайте других людей, идите своей дорогой 
+ 
+ ![!!!](https://www.brainyquote.com/photos_tr/en/c/charlesrswindoll/388332/charlesrswindoll1.jpg)
  
